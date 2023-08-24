@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-=====================================================================================
 
 Developing your mindful leadership skills is an ongoing process that requires a willingness to learn, grow, and seek feedback and coaching. In this chapter, we will explore strategies for utilizing feedback and coaching to develop your mindful leadership skills.
 

@@ -1,5 +1,3 @@
-Encouraging Proactive Mindful Leadership Across the Organization
-===================================================================================================================
 
 As a mindful leader, it's important to foster a culture of mindfulness throughout your organization. In this chapter, we will explore strategies for creating a mindful leadership culture and encouraging proactive mindful leadership across the organization.
 

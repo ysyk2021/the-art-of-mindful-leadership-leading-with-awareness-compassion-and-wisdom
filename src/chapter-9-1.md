@@ -1,5 +1,3 @@
-Identifying Mindful Leadership Technologies and Resources
-==================================================================================================================
 
 Identifying mindful leadership technologies and resources is essential for leaders who want to enhance their ability to lead with awareness, compassion, and wisdom. In this chapter, we will explore strategies for identifying these technologies and resources.
 

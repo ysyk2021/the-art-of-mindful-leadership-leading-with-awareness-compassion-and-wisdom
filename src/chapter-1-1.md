@@ -1,5 +1,3 @@
-Understanding the Importance of Mindful Leadership
-============================================================================
 
 Effective leadership is essential for the success of any organization. However, traditional approaches to leadership may not always be effective. This is where mindful leadership comes in. In this chapter, we will explore the importance of mindful leadership.
 

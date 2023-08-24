@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-=====================================================================================================
 
 Managing resistance to mindful leadership is an important aspect of effective leadership. In this chapter, we will explore strategies for overcoming resistance and promoting greater buy-in and support.
 

@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-==========================================================================================
 
 Developing a mindful leadership mindset involves cultivating a sense of awareness, empathy, and compassion in your interactions with others. In this chapter, we will explore strategies for setting realistic goals and objectives that align with the principles of mindful leadership.
 

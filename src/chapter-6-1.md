@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Mindful Leadership
-==================================================================================================================
 
 Developing your mindful leadership skills requires understanding the principles of effective mindful leadership. In this chapter, we will explore some of the key principles that can guide your development as a mindful leader.
 

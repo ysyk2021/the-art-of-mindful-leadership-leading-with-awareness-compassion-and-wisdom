@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-=====================================================================================
 
 Understanding the power of mindful leadership requires addressing limiting beliefs that may be holding you back from achieving your full potential. In this chapter, we will explore some of the common limiting beliefs that can hinder the development of mindful leadership skills and strategies for addressing them.
 

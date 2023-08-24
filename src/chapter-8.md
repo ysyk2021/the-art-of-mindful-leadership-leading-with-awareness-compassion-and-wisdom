@@ -1,5 +1,3 @@
-Chapter 8: Creating a Mindful Leadership Culture
-================================================
 
 Creating a mindful leadership culture is essential for building a positive and productive work environment. In this chapter, we will explore strategies for encouraging proactive mindful leadership across the organization, providing training and professional development opportunities, fostering knowledge sharing and mentorship, and celebrating mindful leadership-based achievements.
 

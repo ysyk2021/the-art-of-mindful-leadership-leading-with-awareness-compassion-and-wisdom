@@ -1,5 +1,3 @@
-Finding Ways to Apply Mindful Leadership to Your Job
-===========================================================================================================================
 
 Maximizing your mindful leadership skills in the workplace involves finding ways to apply mindful leadership principles and practices to your day-to-day job responsibilities. In this chapter, we will explore strategies for identifying opportunities to apply mindful leadership in your job.
 

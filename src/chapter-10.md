@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 As a mindful leader, it's important to constantly evaluate your performance and make adjustments as needed. In this chapter, we will explore strategies for measuring results, learning from experience, and adapting to changes in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 3: Developing a Mindful Leadership Mindset
-==================================================
 
 Developing a mindful leadership mindset is essential for leaders who want to create a positive and productive work environment. In this chapter, we will explore techniques for cultivating a mindful leadership mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through mindful leadership.
 

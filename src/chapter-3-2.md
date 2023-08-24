@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-==================================================================================================
 
 Developing a mindful leadership mindset requires utilizing strategies such as positive self-talk and visualization to cultivate a positive and growth-oriented mindset. In this chapter, we will explore some of the key strategies for developing a mindful leadership mindset.
 

@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-=================================================================================================
 
 In today's rapidly changing workplace, it's essential for leaders to be adaptable and flexible. In this chapter, we will explore strategies for adapting to changes in the workplace and continuing to lead with awareness, compassion, and wisdom.
 

@@ -1,5 +1,3 @@
-Developing Strategies for Leading with Awareness, Compassion, and Wisdom
-==============================================================================================================================
 
 Developing your mindful leadership skills requires a conscious effort to develop strategies for leading with awareness, compassion, and wisdom. In this chapter, we will explore some of the key strategies for developing your mindful leadership skills.
 

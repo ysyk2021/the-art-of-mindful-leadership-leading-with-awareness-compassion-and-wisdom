@@ -1,5 +1,3 @@
-Chapter 2: Defining Mindful Leadership
-======================================
 
 Mindful leadership involves leading with awareness, compassion, and wisdom. In this chapter, we will provide an overview of mindful leadership, explore the science behind it, and offer strategies for assessing your personal approach to leadership.
 

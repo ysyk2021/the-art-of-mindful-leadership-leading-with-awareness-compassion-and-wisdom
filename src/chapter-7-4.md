@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-================================================================================
 
 Fostering a growth mindset is an important aspect of managing resistance to mindful leadership. In this chapter, we will explore strategies for fostering a growth mindset among team members and promoting greater buy-in and support for mindful leadership approaches.
 
@@ -27,5 +25,4 @@ Conclusion
 ----------
 
 Fostering a growth mindset is an important strategy for managing resistance to mindful leadership approaches. By emphasizing the importance of learning and development, encouraging risk-taking and experimentation, providing support and resources, and modeling a growth mindset, leaders can create a culture that supports growth and development for everyone. Ultimately, this can lead to improved team performance, greater job satisfaction, and a more positive impact on society as a whole.
-
 

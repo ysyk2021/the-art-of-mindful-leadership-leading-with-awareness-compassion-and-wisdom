@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Measuring results and learning from experience is an essential component of mindful leadership. In this chapter, we will explore strategies for tracking progress and measuring results in order to improve leadership skills and create a positive and productive work environment.
 

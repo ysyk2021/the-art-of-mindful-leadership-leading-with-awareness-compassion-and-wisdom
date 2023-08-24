@@ -1,5 +1,3 @@
-Communicating Effectively through Mindful Leadership
-============================================================================================================================
 
 Effective communication is essential for successful leadership. Mindful leaders understand that communication is more than just conveying information, it also involves active listening and empathy. In this chapter, we will explore strategies for maximizing your mindful leadership skills to communicate effectively in the workplace.
 

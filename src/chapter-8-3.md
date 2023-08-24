@@ -1,5 +1,3 @@
-Fostering Knowledge Sharing and Mentorship
-============================================================================================
 
 Fostering knowledge sharing and mentorship is essential for creating a mindful leadership culture. In this chapter, we will explore strategies for fostering knowledge sharing and mentorship.
 

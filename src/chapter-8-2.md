@@ -1,5 +1,3 @@
-Providing Training and Professional Development Opportunities
-================================================================================================================
 
 As a mindful leader, it's important to invest in the professional development of your team members. In this chapter, we will explore strategies for providing training and professional development opportunities that promote mindfulness and support the growth and development of your team.
 

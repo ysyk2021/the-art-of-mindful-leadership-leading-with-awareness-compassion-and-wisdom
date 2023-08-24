@@ -1,5 +1,3 @@
-Identifying Opportunities to Use Mindful Leadership at Work
-==================================================================================================================================
 
 Maximizing your mindful leadership skills in the workplace involves identifying opportunities to apply mindful leadership principles and practices in your day-to-day interactions with team members and stakeholders. In this chapter, we will explore some of the key opportunities to use mindful leadership at work.
 

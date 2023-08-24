@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-==========================================================================================
 
 Reflection and self-evaluation are crucial components of mindful leadership. In this chapter, we will explore strategies for reflecting on your leadership skills and evaluating your performance in order to improve your effectiveness as a leader.
 

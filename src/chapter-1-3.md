@@ -1,5 +1,3 @@
-Benefits of Leading with Awareness, Compassion, and Wisdom
-====================================================================================
 
 Effective leadership requires more than just technical skills and knowledge. It also requires the ability to lead with awareness, compassion, and wisdom. In this chapter, we will explore the benefits of leading with these qualities.
 

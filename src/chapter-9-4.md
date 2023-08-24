@@ -1,5 +1,3 @@
-Avoiding Information Overload
-======================================================================================
 
 Leveraging technology for mindful leadership is essential for leaders who want to create a positive and productive work environment. In this chapter, we will explore strategies for avoiding information overload and using technology mindfully.
 

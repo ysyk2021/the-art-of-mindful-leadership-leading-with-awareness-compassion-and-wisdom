@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Mindful Leadership Skills in the Workplace
-=====================================================================
 
 Maximizing your mindful leadership skills in the workplace can help you become a more effective and compassionate leader. In this chapter, we will explore strategies for identifying opportunities to use mindful leadership at work, finding ways to apply mindful leadership to your job, communicating effectively through mindful leadership, and fostering collaboration with coworkers.
 

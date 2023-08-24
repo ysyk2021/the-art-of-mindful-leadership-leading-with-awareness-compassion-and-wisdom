@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Mindful Leadership
-====================================================================================================================
 
 Resistance to mindful leadership can take many forms, from skepticism and cynicism to outright hostility and pushback. In this chapter, we will explore common sources of resistance to mindful leadership and offer strategies for managing resistance effectively.
 

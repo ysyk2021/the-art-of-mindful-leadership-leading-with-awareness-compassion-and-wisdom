@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Mindful Leadership
-================================================================================================================
 
 Developing empathy and compassion is a crucial component of mindful leadership. In this chapter, we will explore strategies for developing empathy and compassion through mindful leadership.
 

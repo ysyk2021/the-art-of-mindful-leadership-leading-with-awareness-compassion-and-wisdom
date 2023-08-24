@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Leadership
-=======================================================================================
 
 Leadership is not a one-size-fits-all approach. Each leader has their own personal style, strengths, and areas for improvement. In order to become a mindful leader, it's important to assess your personal approach to leadership. In this chapter, we will explore strategies for assessing your personal approach to leadership.
 
@@ -40,5 +38,4 @@ Conclusion
 ----------
 
 Assessing your personal approach to leadership is an essential component of becoming a mindful leader. By identifying your leadership style, evaluating your communication style, assessing your emotional intelligence, examining your decision-making process, and reflecting on your values and beliefs, you can identify areas for improvement and develop strategies to become a more effective, compassionate, and wise leader.
-
 

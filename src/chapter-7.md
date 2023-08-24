@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Mindful Leadership
-====================================================
 
 Managing resistance to mindful leadership is essential for leaders who want to create a positive and productive work environment. In this chapter, we will explore strategies for identifying common sources of resistance, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 
@@ -22,9 +20,6 @@ Fostering a Growth Mindset
 --------------------------
 
 Fostering a growth mindset is crucial for creating a culture that supports mindful leadership. This may involve encouraging team members to view challenges as opportunities for growth and development, emphasizing the importance of continuous learning and improvement, and recognizing and celebrating achievements and successes along the way. By fostering a growth mindset, leaders can create a culture that embraces change and values learning and development.
-
-Chapter 8: Creating a Mindful Leadership Culture: Celebrating Mindful Leadership-Based Achievements
-===================================================================================================
 
 Celebrating mindful leadership-based achievements is essential for creating a culture that supports and values mindful leadership. In this chapter, we will explore strategies for celebrating mindful leadership-based achievements.
 

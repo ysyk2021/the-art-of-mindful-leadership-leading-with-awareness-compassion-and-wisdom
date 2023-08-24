@@ -1,5 +1,3 @@
-The Benefits of Focusing on Mindful Leadership
-========================================================================================================
 
 Focusing on mindful leadership can bring a wide range of benefits to individuals, teams, and organizations. In this chapter, we will explore some of the key benefits of focusing on mindful leadership.
 

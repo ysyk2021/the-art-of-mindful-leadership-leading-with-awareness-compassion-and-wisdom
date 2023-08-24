@@ -1,5 +1,3 @@
-Techniques for Cultivating a Mindful Leadership Mindset
-===========================================================================================================
 
 Developing a mindful leadership mindset requires utilizing various techniques to cultivate awareness, compassion, and wisdom. In this chapter, we will explore some of the key techniques for developing a mindful leadership mindset.
 

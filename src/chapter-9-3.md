@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-================================================================================================
 
 Leveraging technology for mindful leadership involves utilizing digital tools and resources in a way that promotes accessibility and inclusivity in the workplace. In this chapter, we will explore strategies for fostering accessibility and inclusivity through mindful use of technology.
 

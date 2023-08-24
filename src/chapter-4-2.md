@@ -1,5 +1,3 @@
-Recognizing How Mindful Leadership Contributes to Success
-===================================================================================================================
 
 Mindful leadership is a powerful approach to leadership that promotes awareness, empathy, and compassion in your interactions with others. In this chapter, we will explore how mindful leadership contributes to success.
 
