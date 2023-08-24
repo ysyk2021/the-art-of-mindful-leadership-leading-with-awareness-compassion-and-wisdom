@@ -1,5 +1,4 @@
 
-
 In this book, we have explored the importance of mindful leadership and strategies for leading with awareness, compassion, and wisdom. In this final chapter, we will recap key strategies for mindful leadership and offer some final thoughts and advice.
 
 Recap of Key Strategies for Mindful Leadership

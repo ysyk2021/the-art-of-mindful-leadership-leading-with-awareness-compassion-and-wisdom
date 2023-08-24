@@ -1,5 +1,4 @@
 
-
 In today's fast-paced and constantly changing business environments, the need for mindful leadership has never been greater. Mindful leadership is about leading with awareness, compassion, and wisdom – not just achieving results and profits. It's about creating a culture of mindfulness and well-being that can drive positive change and growth for both individuals and organizations.
 
 In this book, we'll explore the art of mindful leadership and provide strategies for leading with mindfulness, empathy, and purpose. We'll draw on examples from successful leaders across industries to illustrate the power of mindful leadership and its impact on individuals, teams, and organizations.
