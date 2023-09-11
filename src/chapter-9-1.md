@@ -1,5 +1,4 @@
-Chapter 19: Identifying Mindful Leadership Technologies and Resources
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various technologies and resources that can support mindful leadership practices. By leveraging these tools and materials, leaders can enhance their awareness, compassion, and wisdom in their leadership journey.
 

@@ -1,5 +1,4 @@
-Chapter 24: Providing Training and Professional Development Opportunities
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of providing training and professional development opportunities in mindful leadership. We will discuss how investing in continuous learning and growth can enhance the skills, knowledge, and capabilities of leaders, ultimately leading to more effective and compassionate leadership.
 

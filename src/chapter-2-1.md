@@ -1,5 +1,4 @@
-Chapter 1: Overview of Mindful Leadership
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of mindful leadership and its significance in today's complex and dynamic world. We will explore the key principles, characteristics, and benefits of mindful leadership, highlighting its role in fostering self-awareness, compassion, and wisdom.
 

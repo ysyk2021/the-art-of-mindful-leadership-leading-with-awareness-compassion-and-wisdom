@@ -1,5 +1,4 @@
-Chapter 7: Fostering Continuous Learning and Improvement
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering continuous learning and improvement in mindful leadership. By cultivating a culture of learning, leaders can embrace growth, develop new skills, and adapt to an ever-changing business landscape. Through continuous learning, leaders and organizations can stay relevant, innovate, and achieve long-term success.
 

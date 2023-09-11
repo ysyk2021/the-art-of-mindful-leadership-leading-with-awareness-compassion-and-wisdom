@@ -1,5 +1,4 @@
-Chapter 11: Analyzing the Impact of Mindful Leadership on Individuals and Organizations
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound impact that mindful leadership has on individuals and organizations. By embracing awareness, compassion, and wisdom in their leadership practices, mindful leaders create a positive work environment, enhance employee well-being, drive innovation, and achieve sustainable success.
 

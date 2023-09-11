@@ -1,5 +1,4 @@
-Chapter 10: Addressing Fear and Uncertainty
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of addressing fear and uncertainty as a mindful leader. Fear and uncertainty can hinder personal growth, team collaboration, and organizational progress. By understanding and addressing these emotions, leaders can cultivate resilience, inspire confidence, and navigate change with wisdom and compassion.
 

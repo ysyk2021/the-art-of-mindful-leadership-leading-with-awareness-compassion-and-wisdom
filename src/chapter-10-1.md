@@ -1,5 +1,4 @@
-Chapter 18: Tracking Progress and Measuring Results
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and measuring results in mindful leadership. By implementing effective tracking and measurement practices, leaders can assess performance, drive accountability, and foster continuous improvement.
 

@@ -1,5 +1,4 @@
-Chapter 23: Celebrating Mindful Leadership-Based Achievements
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating mindful leadership-based achievements in creating a positive and nurturing work environment. Recognizing and appreciating the accomplishments of mindful leaders and their teams not only boosts morale but also reinforces the values of awareness, compassion, and wisdom.
 

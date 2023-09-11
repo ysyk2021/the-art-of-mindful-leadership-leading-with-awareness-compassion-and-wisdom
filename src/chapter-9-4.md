@@ -1,5 +1,4 @@
-Chapter 17: Avoiding Information Overload
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for mindful leaders to avoid information overload in today's fast-paced and information-rich world. By managing the influx of information effectively, leaders can maintain focus, make informed decisions, and cultivate clarity of mind.
 

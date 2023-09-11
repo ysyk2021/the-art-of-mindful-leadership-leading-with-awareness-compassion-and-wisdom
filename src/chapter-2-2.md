@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Science Behind Mindful Leadership
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the science behind mindful leadership and explore the research-backed benefits of incorporating mindfulness practices into leadership. By understanding the neuroscience and psychology behind mindfulness, leaders can embrace its transformative power and enhance their effectiveness in leading with awareness, compassion, and wisdom.
 

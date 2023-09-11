@@ -1,5 +1,4 @@
-Chapter 16: Reflection and Self-Evaluation
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of reflection and self-evaluation in mindful leadership. By dedicating time for introspection and self-assessment, leaders can gain valuable insights, refine their approach, and cultivate self-awareness.
 

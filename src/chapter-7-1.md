@@ -1,5 +1,4 @@
-Chapter 6: Identifying Common Sources of Resistance to Mindful Leadership
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common sources of resistance that may arise when implementing mindful leadership practices. By understanding these sources, leaders can proactively address them and overcome resistance, paving the way for a successful integration of mindfulness into their leadership approach.
 

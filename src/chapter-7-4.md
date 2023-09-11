@@ -1,5 +1,4 @@
-Chapter 14: Fostering a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of a growth mindset and its significance in mindful leadership. By cultivating a growth mindset, leaders can promote continuous learning, resilience, innovation, and personal development within themselves and their teams.
 

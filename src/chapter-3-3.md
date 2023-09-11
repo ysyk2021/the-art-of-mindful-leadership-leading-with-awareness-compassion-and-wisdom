@@ -1,5 +1,4 @@
-Chapter 12: Setting Realistic Goals and Objectives
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting realistic goals and objectives as a mindful leader. By establishing clear, achievable, and meaningful goals, leaders can guide individuals and teams towards success while fostering a balanced and sustainable work environment.
 

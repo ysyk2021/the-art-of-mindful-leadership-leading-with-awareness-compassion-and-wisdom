@@ -1,5 +1,4 @@
-Chapter 7: Finding Ways to Apply Mindful Leadership to Your Job
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical ways in which individuals can apply mindful leadership principles and practices to their everyday work. By incorporating mindfulness into their job roles, individuals can enhance their effectiveness, well-being, and overall job satisfaction.
 

@@ -1,5 +1,4 @@
-Chapter 8: Developing Empathy and Compassion through Mindful Leadership
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound relationship between mindful leadership, empathy, and compassion. By cultivating these qualities, leaders can create a positive impact on individuals, teams, and organizational culture.
 

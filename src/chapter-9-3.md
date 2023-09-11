@@ -1,5 +1,4 @@
-Chapter 22: Fostering Accessibility and Inclusivity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering accessibility and inclusivity in mindful leadership. We will delve into strategies that leaders can employ to create an environment where individuals from diverse backgrounds feel welcome, valued, and empowered.
 

@@ -1,5 +1,4 @@
-Chapter 9: Developing Strategies for Overcoming Resistance
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for mindful leaders to effectively navigate and overcome resistance within individuals and teams. Resistance can arise when implementing new ideas, changes, or initiatives, and it is essential for leaders to address and overcome it in order to foster growth and progress.
 

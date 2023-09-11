@@ -1,5 +1,4 @@
-Chapter 25: Fostering Knowledge Sharing and Mentorship
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of fostering knowledge sharing and mentorship in the context of mindful leadership. We will discuss how creating a culture of sharing, learning, and mentorship can empower leaders to cultivate awareness, compassion, and wisdom.
 

@@ -1,5 +1,4 @@
-Chapter 26: Encouraging Proactive Mindful Leadership Across the Organization
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of encouraging proactive mindful leadership across the organization. We will discuss how cultivating a culture of proactive mindfulness can empower leaders at all levels to take responsibility, make conscious decisions, and create positive change.
 

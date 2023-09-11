@@ -1,5 +1,4 @@
-Chapter 13: Recognizing How Mindful Leadership Contributes to Success
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how mindful leadership contributes to success in various aspects of individual and organizational performance. By recognizing the key elements of mindful leadership, we can understand how it leads to improved decision-making, enhanced relationships, increased innovation, and sustainable success.
 

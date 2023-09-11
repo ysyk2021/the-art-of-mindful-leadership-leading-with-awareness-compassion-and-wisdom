@@ -1,5 +1,4 @@
-Chapter 7: The Benefits of Focusing on Mindful Leadership
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of focusing on mindful leadership and how it can positively impact both leaders and their organizations. By cultivating awareness, compassion, and wisdom in leadership practices, mindful leaders can create a harmonious work environment, enhance employee well-being, foster innovation, and achieve sustainable success.
 

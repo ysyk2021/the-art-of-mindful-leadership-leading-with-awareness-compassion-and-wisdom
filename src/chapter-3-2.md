@@ -1,5 +1,4 @@
-Chapter 13: Utilizing Positive Self-Talk and Visualization
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of positive self-talk and visualization as tools for mindful leadership. By harnessing the potential of our thoughts and mental imagery, leaders can cultivate resilience, enhance focus, boost confidence, and promote overall well-being.
 

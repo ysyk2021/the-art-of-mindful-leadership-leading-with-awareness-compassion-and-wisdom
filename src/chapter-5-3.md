@@ -1,5 +1,4 @@
-Chapter 5: Communicating Effectively through Mindful Leadership
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential role of effective communication in mindful leadership. We will delve into various aspects of communication, including active listening, mindful speech, nonverbal cues, and creating an environment of open dialogue. By mastering these skills, leaders can foster understanding, build trust, and promote collaboration within their teams.
 

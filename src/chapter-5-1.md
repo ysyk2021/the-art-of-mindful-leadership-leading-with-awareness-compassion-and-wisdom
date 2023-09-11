@@ -1,5 +1,4 @@
-Chapter 11: Identifying Opportunities to Use Mindful Leadership at Work
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various opportunities where mindful leadership can be applied in the workplace. By recognizing and leveraging these opportunities, leaders can create a more mindful, compassionate, and productive work environment.
 

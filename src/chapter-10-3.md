@@ -1,5 +1,4 @@
-Chapter 15: Continuous Learning and Improvement
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of continuous learning and improvement in mindful leadership. By fostering a culture of ongoing growth, leaders can adapt to change, inspire innovation, and cultivate personal and organizational excellence.
 
